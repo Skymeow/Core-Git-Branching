@@ -29,7 +29,11 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 sky met the Unicorn King who granted him magic powers.
 
+
 sky woke to the sound of traffic, the sky was gray. lalalaa the best ending ever!
+Zookeeper died.
+
+
 The end.
 
 ## Cast
